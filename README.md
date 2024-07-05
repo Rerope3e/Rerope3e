@@ -2,7 +2,6 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on (No Time This Month)
-- 📫 How to reach me eliasmohanlall@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i made a prank script
 
